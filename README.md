@@ -7,4 +7,4 @@ Toh zinda ho tum.
 Hawa ke jhokon ke sath, balon mein khushboo rachekar,
 Kisi ke pyar mein, pagal ho tod kar,
 Magar yehi toh zindagi hai...
-- Farhan Akhtar
+- Farhan Akhtar.
